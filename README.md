@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jamesknol aka dj lucas knol/arjan krijger
+- 👀 I’m interested in ... music and nightcore 
+- 🌱 I’m currently learning ... nothing
+- 💞️ I’m looking to collaborate on ...nothing
+- 📫 How to reach me ... discord and yt
